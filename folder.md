@@ -6,7 +6,8 @@
 
 Pendiente de subir
 ## Otro
-# Universidas ICESI "la mejor"
+# Pensul y mallas corriculares
+Queremos brindar las mejores herramientas 
 Es la universidad numero uno en clombia y la tercera a nivel de latinoamerica, todo es de calidad.
 # La calidad
 Damos lo mejor de nosotros, para que nuestros estudiante tenga las mejores herramientas
