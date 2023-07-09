@@ -6,5 +6,5 @@
 
 Pendiente de subir
 ## Otro
-# Universidas ICESI "atro nivel"
+# Universidas ICESI "la mejor"
 Es la universidad numero uno en clombia y la tercera a nivel de latinoamerica 
