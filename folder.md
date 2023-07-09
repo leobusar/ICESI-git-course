@@ -9,4 +9,6 @@ Pendiente de subir
 # Universidas ICESI "la mejor"
 Es la universidad numero uno en clombia y la tercera a nivel de latinoamerica, todo es de calidad.
 # La calidad
-Damos lo mejor de nosotros, para que nuestros estudiante tenga las mejores herramientas 
+Damos lo mejor de nosotros, para que nuestros estudiante tenga las mejores herramientas
+# Convenios
+Contamos con los mejores convenios, para que nuestros estudiantes tengan varias opciones y puedan viajar al exterior.  
